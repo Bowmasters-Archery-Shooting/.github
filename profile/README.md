@@ -1,6 +1,6 @@
 # Bowmasters: Archery Shooting 🎯🏹
 
-![Bowmasters: Archery Shooting](https://cdn.dribbble.com/userupload/24368255/file/original-38f86194303e32f2aed5da52c61867ae.png?resize=400x0)
+![Bowmasters: Archery Shooting](https://imag.malavida.com/mvimgbig/download-fs/bowmasters-mod-33661-6.jpg)
 
 **Bowmasters: Archery Shooting** is an exciting and fun archery game where you duel against opponents using various characters and weapons. Aim, shoot, and win in fast-paced battles while unlocking new characters and upgrading your skills.
 
